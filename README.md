@@ -4,6 +4,3 @@ I am currently working on my data analysis portfolio with Microsoft Excel and SQ
 Take a look around and explore. 
 
 If you have any questions or feedback, please let me know. 
-
-
-(portfolio to be added soon)
